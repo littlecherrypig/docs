@@ -33,4 +33,4 @@ We may update this Privacy Policy from time to time. We will notify you of any c
 
 ## 5. Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at [Your Email Address or Support Page Link].
+If you have any questions about this Privacy Policy, please contact us at littlecherrypig+geqr@gmail.com.
